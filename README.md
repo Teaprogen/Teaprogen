@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **find a job**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1rIoT_o33D_xCu1p2lt-fBBw3DzqPKh2Q/view?usp=sharing](https://drive.google.com/file/d/1rIoT_o33D_xCu1p2lt-fBBw3DzqPKh2Q/view?usp=sharing)
+- 📄 Know about my experiences [CV on Google disk](https://drive.google.com/file/d/1rIoT_o33D_xCu1p2lt-fBBw3DzqPKh2Q/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
